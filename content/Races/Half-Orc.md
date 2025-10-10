@@ -1,0 +1,11 @@
+>Half-orcs, colloquially known as half-tusks in Purskul and Zehoarastria of Amn, are humanoids born of both [[human]] and orc ancestry by a multitude of means. Having the combined physical power of their orcish ancestors with the agility of their [[human]] ones, half-orcs were formidable individuals.
+
+Half-orcs are, on average, somewhere from 5 feet and ​9 inches​ to ​6 feet and ​4 inches (1.8​ to ​1.9 meters) in height and usually weighed around 155​ to ​225 pounds (70.3​ to ​102 kilograms). making them a little taller and stronger than humans on average. Most half-orcs had grayish skin, jutting jaws, prominent teeth, a sloping forehead, and coarse body hair, which caused them to stand out from their [[human]] brethren, though their canines were noticeably smaller than a full-blooded orc’s tusks. Half-orcs as such appeared bestial to humans, though amongst orcs they were considered [[human]]-like physically. Half-orc hair was most often black, though it grayed very quickly with age. In general, half-orcs did not live as long as humans, maturing by their sixteenth year and often dying before their sixtieth.
+
+Half-orcs that have lived amongst orcs have often picked up the common orcish tradition of ritual scarring. Half-orcs with such a background did not look upon scars as marks of shame or as unattractive blemishes, but rather as marks of pride that demonstrate their skill and bravery in battle. On occasion, however, scars were used for a darker purpose, with orcs marking half-orc slaves with scars in the same manner a rancher might brand cattle.
+
+Half-orcs had shorter lifespans than humans, reaching maturity slightly earlier and rarely living longer than seventy-five years.
+
+Like other half-breeds, half-orcs combined the natures of both their lineages into a unique whole, a trait which extended into their mentality as well as their physical qualities. Like humans, half-orcs were quick to action, tenacious and bold, and possessed an adaptability that was unusual among most races. This was useful to the race given that they were considered outsiders just about everywhere; they had the ability to thrive in unwelcome or unusual locations, which was a necessity for a half-orc’s welfare.
+
+![](https://static.wikia.nocookie.net/forgottenrealms/images/8/86/Half-orc-5e.jpg/revision/latest?cb=20200903215008)

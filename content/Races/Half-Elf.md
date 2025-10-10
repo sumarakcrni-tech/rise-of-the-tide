@@ -1,0 +1,11 @@
+>Half-elves (also called Cha'Tel'Quessir in Elven) are humanoids born through the union of an [[elf]] and a [[human]]. Whether a half-elf was raised by their [[human]] parent or their elven parent, they often felt isolated and alone.
+
+Half-elves stood roughly around 5 feet and ​5 inches​ to ​6 feet and ​2 inches (1.7​ to ​1.9 meters), making them only slightly shorter overall than humans, and weighed in at 130​ to ​190 pounds (59​ to ​86 kilograms), making them heavier than elves but still considerably lighter than humans. Like humans, half-elves had a wide variety of complexions, some of which were inherited from the elven half of their heritage, such as a tendency for metallic-hued skin and inhuman hair colors. For example, half-moon elves typically exhibited a pale, bluish tint around the ears and chin, while half-sun elves had a color more reminiscent of bronze, with hair of gold.
+
+Half-elves usually adopted the dress and hairstyles of the culture among which they were raised. However, it was also fairly common for half-elves raised among humans to wear elven clothing in order to proudly display signs of their dual heritage. Regardless of what they wore, half-elves stood out in a crowd through the combination of physical distinctiveness and force of personality.
+
+Half-elves matured at a slower rate than humans, and could live for over 180 years.
+
+Half-elves, as a result of their unique heritage, exhibited a confidence and strength of personality uncommon amongst both humans and elves, a result of the blending between elven perceptiveness and [[human]] passion and drive. Half-elves were natural leaders and negotiators, and, perhaps because of their reality of living in two worlds, were unusually open-minded. Some half-elves manifested this leadership through confidence and bravery, but others were cordial and polite, manifesting their force of personality in a subtler but no less effective manner.[
+
+![](https://static.wikia.nocookie.net/forgottenrealms/images/9/91/Half-elf2-5e.jpg/revision/latest?cb=20200903214052)

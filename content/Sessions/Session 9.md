@@ -1,0 +1,1 @@
+Next to their temporary campsite, a small cave opening started glowing blue. Inside, a local group of wood elves hides away from the threats inside High Forest. They are called **T****he Order of the Silvan**.

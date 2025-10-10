@@ -1,0 +1,9 @@
+>*Genasi are planetouched humans, infused with the power of the elements. Along with [[aasimar]] and tieflings, genasi were the most common planetouched found on the world of Toril.*
+
+Each of the four fundamental elements had associated genies, so the most common genasi were air genasi, earth genasi, fire genasi, and water genasi,while stormsoul genasi became common in lands such as Akanûl in the 15th century DR. Para-genasi were genasi who expressed a bloodline of two elements, akin to the Para-Elemental Planes. These included the dust para-genasi, ice para-genasi, magma para-genasi, ooze para-genasi, smoke para-genasi, steam para-genasi, among other possibilities. Para-genasi were even rarer than the four standard genasi.
+
+After the [[Spellplague]], when the separate elemental planes coalesced into the Elemental Chaos, each genasi gained the potential to manifest the power of any of the elements, though only one at a time. After the Second Sundering, the genasi were again separated into the four major subraces of air, earth, fire, and water.
+
+No two genasi were alike in appearance. Some could pass as normal humans, bearing the marks of their [[human]] ethnicity; for others, their elemental nature was impossible to hide. Their heritage was nearly always evident in one or two physical traits, such as skin or hair color or an elemental aura. Some genasi did not have hair at all; for such genasi, the substance that appeared to cover their heads was actually a supernatural expression of their elemental nature.
+
+![](https://static.wikia.nocookie.net/forgottenrealms/images/9/95/Genasi_subraces_5e.png/revision/latest?cb=20151010092802)

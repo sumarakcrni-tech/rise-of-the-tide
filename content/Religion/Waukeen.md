@@ -1,0 +1,5 @@
+>*For your great deed, it is only appropriate that you be granted a great reward.*
+
+**Waukeen** is a lesser deity of wealth and trade in the Faerûnian pantheon. The Merchant's Friend is venerated and appeased by not only merchants, from lowly peddlers to the wealthy owners of trading companies, but investors, accountants, entrepreneurs, caravan guides, warehouse owners, philanthropists, deal-makers, moneylenders, and other such individuals. Liberty's Maiden is a goddess of commerce and the accumulation of wealth through free and fair trade, as well as the beneficial use of wealth to improve civilization. At the same time The Golden Lady was the goddess of illicit trade and the patron of many smugglers, fences, black marketeers, and "businessmen" on the shady side of commerce.
+
+![](https://static.wikia.nocookie.net/forgottenrealms/images/1/19/Waukeen_p88.jpg/revision/latest?cb=20220106063652)

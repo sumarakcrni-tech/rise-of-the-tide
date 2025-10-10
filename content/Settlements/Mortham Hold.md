@@ -1,0 +1,1 @@
+This small walled castle has strong stone walls, engraved with runes of strength.

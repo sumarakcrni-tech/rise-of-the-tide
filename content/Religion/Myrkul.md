@@ -1,0 +1,5 @@
+>*But I choose the dead, and by doing so I truly win… All things must die—even [[gods]].*
+
+**Myrkul** is a god of the dead and later a god of decay and exhaustion in the Faerûnian pantheon. He was originally a mortal man, a necromancer named Myrkul Bey al-Kursi, who ascended to godhood alongside [[Bhaal]], the god of murder, and [[Bane]], god of tyranny. His portfolio and home, the Bone Castle, were both usurped by the mortal [[Cyric]] and later passed on to the ascended [[Kelemvor]]. However, as that which is dead can never truly die, Myrkul was worshiped as a god once more in the 15th century DR, the Reaper who brought more souls for the new Lord of the Dead to judge. The face of the Lord of Bones, the white skull shrouded in a black cowl, was recognized across the Realms as the symbol of fear and death, the paragon of nightmares.
+
+![](https://static.wikia.nocookie.net/forgottenrealms/images/1/1d/Myrkul%2C_Lord_of_Bones_CLB.jpg/revision/latest/scale-to-width-down/1000?cb=20221225132449)

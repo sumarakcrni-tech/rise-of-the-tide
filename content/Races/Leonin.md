@@ -1,0 +1,8 @@
+>*Our world stands on three feet: pride, dignity, and independence. When voices claim we've lost these virtues, do not listen. Those are the words of thieves, convincing you you've already lost what they aim to steal.*
+
+Leonin are muscular and powerful humanoids, towering over a [[human]], growing beyond 6 feet (1.8 meters), sometimes reaching 7 feet (2.1 meters). Their bodies were covered in tawny fur, their hands ended in sharp retractible feline claws, their feet were cat-like, and their tails were long, covered in the same fur color as the rest of their bodies. The leonin species were sexually dimorphic, with males growing thick manes of various colors, from gold to black, while females had short fur, similar to lions. All leonin were capable of unleashing fearsome thunderous roars.
+
+Leonin were known for their confident and prideful personality, as well as the social structure of nomadic lion-like pride in the shining plains of Oreskos. Much of the leonin people lived in defiance of the [[gods]] of Theros and rarely interacted with other races. They loved brawls and fighting, reinforced by a brash and impulsive personality, quick to anger but quick to forgive. They took offense to criticisms or intolerance. Leonin loved verbal fighting as much as they did physical conflicts. They often playfully brawled and wrestled and engaged in aggressive debates to exercise mind and body.
+
+
+![](https://static.wikia.nocookie.net/forgottenrealms/images/b/b9/Leonin_male.webp/revision/latest/scale-to-width-down/1000?cb=20241216062357)

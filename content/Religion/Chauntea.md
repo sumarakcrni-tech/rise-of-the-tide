@@ -1,0 +1,4 @@
+>*The Earthmother is everything, and her health is our health. She feeds us, clothes us, waters us, and shelters us. No god is greater than her, though many are noisier. No god is more forgiving, more nurturing, or more essential. Truly, Chauntea is All.*
+
+**Chauntea** is the goddess of life and bounty, who viewed herself as the embodiment of all things agrarian. The Earthmother is seen as the tamer parallel of [[Silvanus]], the Forest Father of druidry and wilderness, as she is the deity of agriculture and plant cultivation.
+![](https://static.wikia.nocookie.net/forgottenrealms/images/a/aa/Chauntea_p19-1-.jpg)

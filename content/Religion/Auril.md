@@ -1,0 +1,4 @@
+>*Cover all the lands with ice. Quench fire wherever it is found. Let in the winds and the cold; cut down windbreaks and chop holes in walls and roofs that my breath may come in. Work darknesses to hide the cursed sun so that the chill I bring may slay. Take the life of an arctic creature only in great need, but slay all others at will. Make all [[Faerûn]] fear me.*
+
+**Auril** is the neutral evil goddess of winter and cold in the Faerûnian pantheon. The embodiment of winter's cruelty and all its deadliest aspects, Lady Frostkiss has a heart of ice to match her lethally cold beauty, eternally preserved beneath a sheet of rime. As [[Talos]], leader of the Gods of Fury, eroded her power over snow storms, The Cold Goddess made her season even more frigid to remind the people in the north who controlled the cold.
+![](https://static.wikia.nocookie.net/forgottenrealms/images/1/12/Auril_p91.jpg)

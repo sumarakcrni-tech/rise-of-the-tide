@@ -1,0 +1,3 @@
+>Art, maps, glyphs, knowledge, all that is of scholarly belonging is blessed by Deneir. But alas, knowledge keeps getting replaced by emotions and short-sightedness, slowly taking away power from Deneir.
+
+**Deneir** is the neutral good lesser deity of art, cartography, glyphs, images, knowledge, literature, and scholars. The Scribe of [[Oghma]] was given purpose by his search for the Metatext, a single, perfect work of writing reflected in snippets of every written work committed to paper that, when read, would unlock the secrets of the multiverse. Whereas [[Oghma]] embodied the creative spark, the First Scribe was the recording of humanity's epiphanies.

@@ -1,0 +1,4 @@
+>*There was once a wizard who wanted power beyond all mortal reach. Such stories always end poorly. But luckily for the wizard, the Lady of the Mysteries took a shine to him and became his queen. She granted him powers—such powers—until he was no longer a mere wizard but a god in truth. A god dedicated to his lady and all who wore her crown.*
+
+**Azuth** is the Faerûnian lesser deity of arcane magic whose concerns included the perpetuation of the magical arts as a craft. The Lord of Spells was a servant of [[Mystra]] and worshiped by all manner of arcane spellcasters, earning particular veneration from wizards.
+![](https://static.wikia.nocookie.net/forgottenrealms/images/e/ed/Azuth_p13-1-.jpg)

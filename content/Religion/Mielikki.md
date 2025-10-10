@@ -1,0 +1,5 @@
+>*I know Mielikki is with me because I sense her. I feel her touch as the wind. I hear her voice in the whisper of leaves. I see her beauty in the scene around us. Her presence is as real as yours. She embraces us with every reverent step we take in the wilderness.*
+
+**Mielikki** is the neutral good goddess of forests and forest creatures (particularly dryads) and the patron of druids and rangers in the Faerûnian pantheon. The Lady of the Forest was also the goddess of autumn for a time, but Myrkul reclaimed that domain after his return during the Second Sundering. Scholars of other lands proposed she was known as Khelliara, the Forest Maiden, in Rashemen, and she had a half-elven aspect known as Khalreshaar on the isle of Evermeet.
+
+![](https://static.wikia.nocookie.net/forgottenrealms/images/b/b9/Mielikki_p49-1-.jpg/revision/latest?cb=20091224161530)
