@@ -4,5 +4,4 @@ Leonin are muscular and powerful humanoids, towering over a [[human]], growing b
 
 Leonin were known for their confident and prideful personality, as well as the social structure of nomadic lion-like pride in the shining plains of Oreskos. Much of the leonin people lived in defiance of the [[gods]] of Theros and rarely interacted with other races. They loved brawls and fighting, reinforced by a brash and impulsive personality, quick to anger but quick to forgive. They took offense to criticisms or intolerance. Leonin loved verbal fighting as much as they did physical conflicts. They often playfully brawled and wrestled and engaged in aggressive debates to exercise mind and body.
 
-
-![](https://static.wikia.nocookie.net/forgottenrealms/images/b/b9/Leonin_male.webp/revision/latest/scale-to-width-down/1000?cb=20241216062357)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/b/b9/Leonin_male.webp)

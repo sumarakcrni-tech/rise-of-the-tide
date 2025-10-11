@@ -1,0 +1,24 @@
+>*Time is relative, but the stories it carries are not.*
+
+## First of Mirtul, 1489 DR
+
+### The Meeting
+The intelligent machine known only as [[Grom]] met with a cleric woman called Azlyn Benett near a library where a robbery happened. The guards informed them to speak to Werola, the local librarian. Werola explained to [[Grom]] that pages were torn from the books which was odd, and another book called _Arcana Obscura_ was stolen which seemed to really upset Werola. [[Grom]] and Azlyn promised to help her find the book that was stolen, for a price, of course. Werola agreed and pointed them east bound.
+ 
+In front of the constabulary, they met a strange man called [[Luxon]] who had just arrived to town. [[Grom]] and Azlyn did not interact much with him, but they had the same idea. They proceeded to visit the Constabulary ran by [[Leo Cartwright]] to obtain more information about the recent attack. He provided little information, saying only that bandits were spotted on the Eastern Road. He did however, offer a bounty prize for the bandits. [[Grom]], Azlyn and [[Luxon]] accepted it, which led to bickering which was resolved by agreeing to split the bounty between them. [[Grom]] wandered around the constabulary and silently observed Leo's assistant, Laila. She told him to get back and leave her alone, to which [[Grom]] obliged, but not before noticing that she had a strange spiral tattoo on her left hand and some strange papers she was looking at.
+ 
+Leo remembered there had been a strange occurrence in the village, where a hog from the Cleves Family Farm had been stolen, which the former blamed on his rival family, The Hardcloaks. They agreed to investigate. The first place to start would be the local tavern.
+ 
+On their way to the tavern, Azlyn wished to talk to the Cleves Family members, but was swiftly rejected. She did notice that there were no windows on the little hovel the family was situated. [[Grom]] decided to stop by the local church where he encountered a dragonkin acolyte called [[Mesarth]]. They chatted about the missing book and Werola, but he did not hear anything. He did say that what happened was awful and he had hoped if [[Grom]] could retrieve the stolen books so [[Mesarth]] could organize a book reading competition. [[Grom]] reluctantly agreed. With Azlyn and [[Luxon]] already gone, [[Grom]] continued on towards the tavern, but sidetracked when he spotted a sign saying _Smithy_.
+ 
+The machine entered the shop and met [[Celorfin Garaitnu]], an elven blacksmith with his [[Kenku]] apprentice, [[Coins]]. They chatted about the recent bandit attacks, but he did not hear anything. [[Grom]] asked for some help in his blacksmithing endevours and Celorfin obliged. After a couple of tips and tricks, [[Grom]] thanked the man and left the smithy for the tavern.
+
+### The Tavern
+
+Inside the tavern they met a strange elven woman that was performing in front a crowd of guardsmen. The crowd cheered on for her as she continued to enchant them with a tamburine/drum combo that left the crowd roaring for more. No lasting effort on our adventurers, though. [[Grom]], Azlyn and [[Luxon]] sat at an empty table and the elven woman joined them. She introduced herself as [[Talia]] Wyndall. They chatted about the missing book that Werola mentioned and the reward for returning it, which prompted [[Talia]] to ask to join them. After a round of drinks, they proceeded into the village to explore.
+ 
+When they got out of the tavern, [[Luxon]] noticed something strange. A voice spoke to him inside his head. Mentioning the Eastern Road. He noticed a small particle of dried-up blood on the floor near the tavern, and deducted it was the blood of a dragonkin. This did seem rather strange to everyone around him. He ignored them and they proceeded together to to square where a circus had set up shop.
+ 
+They talked to the merchants who offered them their wares, when they were interrupted by a dwarven man called [[Gili Hardcloak]]. He spoke how Cedric blames his family for the missing hog, which was absurd nonsense and asks the adventurers to help clear his name. They agree to investigate, but not before [[Talia]] notices that he has a strange tattoo on his right hand. They investigated the Cleves Farm for any signs of trespass, but found none. [[Talia]] caught eye of a strange cart sitting outside the Library, and decided to take a sneak peek into the cart. [[Azlyn Bennett]] followed. They found three crates shut tight and tried to open them, but to no avail. One of the guards from the Library came out to guard it, but they slipped past him, their cover intact.
+ 
+[[Luxon]], on the other hand, investigated the pig pen of the Hardcloak family when he heard voices calling to him. Somebody, or something, was fed to the pigs of the Hardcloak family. The news were disturbing.

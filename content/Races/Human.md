@@ -11,4 +11,4 @@ The following are the most prevalent and largest ethnic groups to be found in [[
 - [[Rashemi]]: A hardy and easily adaptable people, descended from the nomadic Raumathar who eventually settled in Aglarond, Rashemen and Thay.
 - [[Tethyrians]]: Perhaps the most tolerant and independent groups of humans in [[Faerûn]], these people were a melting pot of other ethnicities and greatly varied in appearance.
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/d/da/Human_ethnicities.jpg/revision/latest?cb=20230906183534)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/d/da/Human_ethnicities.jpg)

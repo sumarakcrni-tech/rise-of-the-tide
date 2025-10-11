@@ -5,4 +5,5 @@
 In his mortal days, Kelemvor was a skilled mercenary and adventurer, with the heart of a noble paladin concealed under rude manners and thwarted by his mysterious family curse. When he was killed by the mortal [[Cyric]] atop Blackstaff Tower, Kelemvor's soul was absorbed into [[Cyric]]'s sentient sword, Godsbane—in fact [[Mask]], the God of Thieves in disguise. Hidden away in a prison for ten years, his soul became a pawn in [[Mask]]'s scheme to undo the now-divine [[Cyric]]. Kelemvor ultimately escaped, led a revolt of the denizens of the City of the Dead and defeated the Mad God, and was acclaimed by the deceased souls as the new god of death and the dead.
 
 Fair yet cold, Kelemvor was the god of death and the dead—the most recent deity to hold this position, following in the footsteps of Jergal, [[Myrkul]], and [[Cyric]]. Unlike these other deities, whose rule as [[gods]] of the dead made the afterlife an uncertain and fearful thing, Kelemvor promoted that death was a natural part of life and should not be feared as long as it was understood.
-![](https://static.wikia.nocookie.net/forgottenrealms/images/9/90/Kelemvor_avatar.png/revision/latest/scale-to-width-down/1000?cb=20210819040818)
+
+![](https://static.wikia.nocookie.net/forgottenrealms/images/9/90/Kelemvor_avatar.png)

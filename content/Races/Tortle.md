@@ -8,4 +8,4 @@ Although generally poor swimmers, tortles were capable of floating on water and 
 
 Most tortles had the notion of having their houses on their backs, which meant that they rarely felt homesick or the need to lay roots in any single place. They were eager to learn new customs and found beauty in the most ordinary things. Despite spending much of their lives isolated, tortles liked to form strong friendships.
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/5/53/Dnd-tortle-5e-coral-background.png/revision/latest/scale-to-width-down/1000?cb=20230807183107)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/5/53/Dnd-tortle-5e-coral-background.png)

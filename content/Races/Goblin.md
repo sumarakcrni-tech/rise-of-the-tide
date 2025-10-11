@@ -8,4 +8,4 @@ Goblins typically dressed in dark leathers soiled by poor hygiene and colored in
 
 Like other goblinoids, goblins often had a short temper, and were more easily provoked than individuals of most other races. They often found it difficult to overcome this short fuse, and had a sense of greed that made it difficult for them to act altruistically. They also generally took sadistic pleasure in exacting revenge once crossed.
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/7/74/Dungeon_Masters_guide_5e_-_Goblin_-_p107.jpg/revision/latest?cb=20150503203525)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/7/74/Dungeon_Masters_guide_5e_-_Goblin_-_p107.jpg)

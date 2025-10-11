@@ -1,1 +1,0 @@
-Sand whirpool in the middle of Hoghaven

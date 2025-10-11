@@ -2,4 +2,4 @@
 
 **Oghma** is the neutral or unaligned greater god of inspiration, invention, and knowledge and the patron of bards in the Faerûnian pantheon. The Lord of Knowledge was the leader of the Deities of Knowledge and Invention and as such was the most powerful god of knowledge in [[Faerûn]]. The Binder of What is Known, or simply the Binder, was also a member of the pantheon as a neutral or neutral good intermediate deity of speech and writing, as well as patron of the arts and everything beautiful and creative in all genders. Oghma's domain was nothing less than the whole of knowledge and thought, whether they were written down, spoken aloud, or even still remained in the mind, for the idea was the purest and highest incarnation of knowledge.
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/4/45/Oghma_p53-1-.jpg/revision/latest?cb=20220110050741)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/4/45/Oghma_p53-1-.jpg)

@@ -8,4 +8,4 @@ Aarakocra are generally peaceful creatures who cherished their solitude. They we
 
 Male aarakocra tended to have very short tempers and had been known to fly into fits of rage when a perceived wrong occurred. They also were notorious romantic flirts, regardless of whether or not they were married.
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/2/24/Aarakocra_ToA.jpeg/revision/latest?cb=20220817133822)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/2/24/Aarakocra_ToA.jpeg)

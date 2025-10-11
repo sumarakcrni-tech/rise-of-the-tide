@@ -4,4 +4,4 @@ Although individual Tel-quessir races exhibited a number of unique traits, there
 
 Elves commonly possessed strong but swiftly passing passions, being moved easily to laughter, anger, or misery and as quickly calmed. They were known for their impulsive behavior and, as a result, many races saw them as flighty or impetuous. However, elves were not as flaky as others might interpret them to be, and they were typically responsible despite their almost whimsical nature. Partially due to their long lifespan (though not entirely, since many long-lived races acted differently), elves had difficulty taking some matters as seriously as other races, but when threats they recognize did arise, elves were strong friends and allies to those they were loyal to.
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/e/e2/5eR_Elves.jpg/revision/latest/scale-to-width-down/1000?cb=20250529031259)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/e/e2/5eR_Elves.jpg)

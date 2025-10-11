@@ -2,4 +2,4 @@
 
 **Tyr**,  known as Anachtyr in Calimshan, is the lawful good greater god of law and justice in the Faerûnian pantheon and leader of the coalition of deities known as the Triad. The titles of The God of Justice allegorized his nature to his followers. He bore his title of the Maimed God for his missing right hand, lost in an act of bravery and self-sacrifice and his title of the Even-Handed referred to his position as the god of justice, though was also seen as dark humor. The wounded eyes of the Blind Overlord meanwhile were seen as symbolic of "blind justice" and the cost that sometimes came with living a lawful life. His symbol however, balanced scales upon a warhammer, truly symbolized his nature; justice upheld with armed vigilance and benevolent might.
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/2/28/Tyr.jpg/revision/latest?cb=20210429131410)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/2/28/Tyr.jpg)

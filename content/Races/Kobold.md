@@ -6,4 +6,4 @@ A kobold was a reptilian humanoid, standing between 2 and 2.5 feet (60–75 cent
 
 Kobolds were resentful of their short stature and hated members of other races who poked fun at them for this. Most felt as though they ought to compensate for their small size in other ways, such as humor or aggression. They would naturally tend to hate larger creatures, and although they would show respect and obedience if required, they always looked for ways to display their resentment.
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/a/a6/Three_kobolds_in_a_trenchcoat.jpg/revision/latest/scale-to-width-down/1000?cb=20200619101401)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/a/a6/Three_kobolds_in_a_trenchcoat.jpg)

@@ -1,4 +1,5 @@
 >*Lord Ilmater, I beseech you look upon me and behold my sin. Let it stand before your infinite patience and balk in its presence - for while I am weak, you stand mighty. Let me be absolved before your weeping majesty, that I may cleanly bear the burden of others in your name. My knees may stagger, my bones may break, my will may fracture - but my faith stands strong on your shoulders, Lord, if you will let it.*
 
 **Ilmater** is the Faerûnian intermediate deity of endurance, martyrdom, perseverance, and suffering. Known variously as the Crying God, the Rack-Broken Lord, and the One Who Endures, Ilmater is the patron of the suffering, oppressed, and persecuted. He encouraged them to endure and encouraged others to help them by taking their burdens or places. Ilmater was a willing sufferer, bearing the pain of others to spare them from it, and it was said that if he had his way he would do so for all the suffering in the world.
+
 ![](https://static.wikia.nocookie.net/forgottenrealms/images/9/98/Ilmater.jpg)

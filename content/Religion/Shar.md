@@ -2,4 +2,4 @@
 
 **Shar**, also known as Mistress of the Night and the Lady of Loss, is the goddess of darkness and the night in the Faerûnian pantheon and the malevolent twin sister and counterpart to the goddess of the moon, [[Selûne]]. In the 14th and 15th centuries DR, she held the portfolios of darkness, forgetfulness, loss, and night and after she slew the underground god Ibrandul she claimed the portfolios of caverns, dungeons, and the Underdark. In the time of ancient [[Netheril]], Shar also held the portfolios of hatred, sleep, nightmares, illusions, lies, trickery, hiding places, betrayal, treachery, seduction, thieves, thievery, murder, winter, before she lost these to other deities.
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/a/a3/Shar.jpg/revision/latest?cb=20220110045756)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/a/a3/Shar.jpg)

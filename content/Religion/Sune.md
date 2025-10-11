@@ -1,4 +1,5 @@
 >*Beauty is more than skin deep; it issues from the core of one's being and shows one's fair (or foul) face to the world.*
 
 **Sune** is the greater goddess of beauty and passion in the Faerûnian pantheon. Lady Firehair, as her symbol depicted, is the goddess of beauty in all its forms; whether it be sights, sounds, smells, tastes, and feels, the experience of pleasure was the touch of Sune. The Lady of Love is the goddess of all love, including the more negative aspects like obsessions, murderous passions, and the tragedies that could be born from love, but also of deeper connections, of matches destined and forbidden, as well the transformation of ugliness into beauty.
-![](https://static.wikia.nocookie.net/forgottenrealms/images/6/65/Sune_Firehair_5e.png/revision/latest?cb=20250725135603)
+
+![](https://static.wikia.nocookie.net/forgottenrealms/images/6/65/Sune_Firehair_5e.png)

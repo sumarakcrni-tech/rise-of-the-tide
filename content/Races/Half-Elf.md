@@ -6,6 +6,6 @@ Half-elves usually adopted the dress and hairstyles of the culture among which t
 
 Half-elves matured at a slower rate than humans, and could live for over 180 years.
 
-Half-elves, as a result of their unique heritage, exhibited a confidence and strength of personality uncommon amongst both humans and elves, a result of the blending between elven perceptiveness and [[human]] passion and drive. Half-elves were natural leaders and negotiators, and, perhaps because of their reality of living in two worlds, were unusually open-minded. Some half-elves manifested this leadership through confidence and bravery, but others were cordial and polite, manifesting their force of personality in a subtler but no less effective manner.[
+Half-elves, as a result of their unique heritage, exhibited a confidence and strength of personality uncommon amongst both humans and elves, a result of the blending between elven perceptiveness and [[human]] passion and drive. Half-elves were natural leaders and negotiators, and, perhaps because of their reality of living in two worlds, were unusually open-minded. Some half-elves manifested this leadership through confidence and bravery, but others were cordial and polite, manifesting their force of personality in a subtler but no less effective manner.
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/9/91/Half-elf2-5e.jpg/revision/latest?cb=20200903214052)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/9/91/Half-elf2-5e.jpg)

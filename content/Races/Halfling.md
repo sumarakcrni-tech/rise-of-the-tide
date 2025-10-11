@@ -8,4 +8,4 @@ Halfling hairstyles were often complex, with strands woven together or braided. 
 
 Although halflings had an affinity for collecting valuables, they did not prefer to wear these on their person, instead preferring more comfortable clothing. Halflings were by nature joyful and friendly in their dealings with others. Because they lived in a world where they were surrounded by larger creatures, halflings tended to avoid notice, often deliberately, or at the very least, acted cordial towards the larger races. Halflings appeared deceptively harmless, meaning they were often beyond the notice of enemies that might otherwise pose a threat to them.[
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/f/f7/Halfling_PHB5e.jpg/revision/latest?cb=20140921190436)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/f/f7/Halfling_PHB5e.jpg/)

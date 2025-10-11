@@ -1,12 +1,12 @@
 Nestled underneath the [High Forest](The%20High%20Forest.md), a trading village of Hoghaven resides. The village gained in popularity in recent years with its export of hogs, spices and lumber. This piqued the interest of lords in Waterdeep who wish to serve their own interest. One of those lords was Lord Wyndall, Talia's father.
  
-# **P****lot Points**
+# **Plot Points**
 
 The village of Hoghaven is a crossroads for all kinds of people. Their recent fame has left the conservative villagers suspicious of everyone and everything. A group of would-be adventurers arrived at the doorstep of Hoghaven recently.
  
 1. **The Beginning**
 
-The intelligent machine known only as Grom met with a cleric woman called Azlyn Benett near a library where a robbery happened. The guards informed them to speak to Werola, the local librarian. Werola explained to Grom that pages were torn from the books which was odd, and another book called _A__rcana Obscura_ was stolen which seemed to really upset Werola. Grom and Azlyn promised to help her find the book that was stolen, for a price, of course. Werola agreed and pointed them east bound.
+The intelligent machine known only as Grom met with a cleric woman called Azlyn Benett near a library where a robbery happened. The guards informed them to speak to Werola, the local librarian. Werola explained to Grom that pages were torn from the books which was odd, and another book called _Arcana Obscura_ was stolen which seemed to really upset Werola. Grom and Azlyn promised to help her find the book that was stolen, for a price, of course. Werola agreed and pointed them east bound.
  
 In front of the constabulary, they met a strange man called Luxon who had just arrived to town. Grom and Azlyn did not interact much with him, but they had the same idea. They proceeded to visit the Constabulary ran by Leo Cartwright to obtain more information about the recent attack. He provided little information, saying only that bandits were spotted on the Eastern Road. He did however, offer a bounty prize for the bandits. Grom, Azlyn and Luxon accepted it, which led to bickering which was resolved by agreeing to split the bounty between them. Grom wandered around the constabulary and silently observed Leo's assistant, Laila. She told him to get back and leave her alone, to which Grom obliged, but not before noticing that she had a strange spiral tattoo on her left hand and some strange papers she was looking at.
  

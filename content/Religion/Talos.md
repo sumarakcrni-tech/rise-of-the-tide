@@ -4,4 +4,4 @@
 
 Among the [[Bedine]] of [[Anauroch]], who descended from the citizens of [[Netheril]], Talos is still known as Kozah. In Calimshan and Airspur (Chessenta), he was worshiped as Bhaelros and in the Underdark, he had an aspect with a small following as Malyk, a god of wild magic. After the [[Spellplague]], many came to believe that Talos was, in fact, an aspect of the orcish god Gruumsh, but after the Second Sundering the two deities seemed more distinct.
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/6/6b/Talos.jpg/revision/latest?cb=20191228115926)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/6/6b/Talos.jpg)

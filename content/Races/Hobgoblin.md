@@ -6,4 +6,4 @@ When provoked, which was not a hard task, hobgoblins were vindictive creatures w
 
 Hobgoblins were mostly found in communities where they were in command of either goblins or bugbears, or sometimes both. The most civilized goblinoid communities were ruled by the race. This was in large part because hobgoblin society was more industrious and less savage than that of goblins or bugbears. Though bugbears sometimes took control due to their raw strength, most such communities were ruled over by the strongest hobgoblin, who served as the warchief.
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/7/7a/Hobgoblin_Bandit_Lord.jpg/revision/latest/scale-to-width-down/1000?cb=20230104154139)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/7/7a/Hobgoblin_Bandit_Lord.jpg)

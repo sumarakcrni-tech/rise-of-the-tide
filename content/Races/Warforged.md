@@ -6,4 +6,4 @@ Warforged were physically impressive humanoids made up of magically enchanted ma
 
 Warforged took their name from their original purpose, as soldiers, and many had a dutiful attitude towards life, taking pleasure from fulfilling commands. Warforged as a whole had a strong work ethic and shared an aversion to failure. Warforged were capable of fear, often of death or pain, as much as other races and could come to hate the sources of these fears just as easily. Warforged were also capable of loyalty and joy, particularly in relations to friends and allies and could be driven to anger when their loves or goals were threatened. However, warforged as a whole exhibited a simple-minded and reserved approach to life with straightforward goals and reactionary passions.
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/d/d8/WarforgedJuggernautPath.jpg/revision/latest/scale-to-width-down/1000?cb=20130210000658)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/d/d8/WarforgedJuggernautPath.jpg)

@@ -2,7 +2,7 @@ The town of **Red Larch** was a waystop on the Long Road seven days north of Wat
 
 ![Exported image](Exported%20image%2020251008225403-0.jpeg)
 
-# **P****lot Points**
+# **Plot Points**
 
 The town of Red Larch has been a victim of a terrible betrayal by the hands of Fendrel Mistsplitter.  
 When a small, flying creature appeared from the Feywild, the men of Red Larch started disappearing. The only two remaining men were Fendrel and Alfred.

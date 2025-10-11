@@ -12,4 +12,4 @@ Kenku were by habit secretive, self-seeking, and cunning creatures. They tended 
 
 Although they were selfish, kenku actually operated surprisingly well together and with allies. A kenku was most effective when aided or aiding an ally.
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/e/e5/Kenku.png/revision/latest?cb=20190408201632)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/e/e5/Kenku.png)

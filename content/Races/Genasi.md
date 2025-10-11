@@ -6,4 +6,4 @@ After the [[Spellplague]], when the separate elemental planes coalesced into the
 
 No two genasi were alike in appearance. Some could pass as normal humans, bearing the marks of their [[human]] ethnicity; for others, their elemental nature was impossible to hide. Their heritage was nearly always evident in one or two physical traits, such as skin or hair color or an elemental aura. Some genasi did not have hair at all; for such genasi, the substance that appeared to cover their heads was actually a supernatural expression of their elemental nature.
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/9/95/Genasi_subraces_5e.png/revision/latest?cb=20151010092802)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/9/95/Genasi_subraces_5e.png)

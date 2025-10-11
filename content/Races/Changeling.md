@@ -4,4 +4,4 @@ When in their true or natural form, a changeling looked rather like a doppelgang
 
 Changelings are subtle and deceptive in their ways. How a changeling chose and used each new guise they adopted was up to each individual. It might be for mischief, for entertainment, or for heroism, or it could be for terrible misdeeds. To one changeling, it might be no more than a disguise, but to another, it could be another facet of their soul.
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/5/59/Changeling_MtG.jpg/revision/latest/scale-to-width-down/1000?cb=20230822130939)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/5/59/Changeling_MtG.jpg)

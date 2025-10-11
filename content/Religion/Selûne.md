@@ -2,4 +2,4 @@
 
 **Selûne**, also known as Our Lady of Silver, the Moonmaiden, and the Night White Lady, is the goddess of the moon in the Faerûnian pantheon. In the 14th and 15th centuries DR, she held the portfolios of the moon, stars, navigation, navigators, wanderers, questers, seekers, and non-evil lycanthropes.
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/d/dc/Selune.jpg/revision/latest?cb=20091224153157)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/d/dc/Selune.jpg)

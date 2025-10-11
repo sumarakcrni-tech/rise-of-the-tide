@@ -8,4 +8,4 @@ The firbolgs of the Moonshae Isles were said to be considerably ugly.
 
 Firbolgs enjoyed quiet time in the woods, in harmony with nature. The forests were sacred to them and symbolized the heart of the earth and the adaptability of life. They saw themselves as the forests' caretakers.
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/8/82/Firbolgs_-_Steve_Prescott.jpg/revision/latest?cb=20210805111913)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/8/82/Firbolgs_-_Steve_Prescott.jpg)

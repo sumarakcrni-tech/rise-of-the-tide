@@ -6,4 +6,4 @@ Although their evil ancestors could be many generations removed, the taint linge
 
 Tieflings had a number of abilities gifted to them by their fiendish heritage. By and large, tieflings were alluring and intelligent creatures, with a seductive aura in spite of their obviously evil ancestry. To a large degree, tieflings were more capable of guile than a great number of races, but these were not their dominant qualities.
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/4/4e/Rainbow_tieflings_5point5e.jpg/revision/latest/scale-to-width-down/1000?cb=20241021163453)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/4/4e/Rainbow_tieflings_5point5e.jpg)

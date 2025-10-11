@@ -11,5 +11,5 @@ Lizardfolk had to keep their skin relatively moist and needed to wet their bodie
 Lizardfolk had no interest in money or jewels. They also did not much value accumulating knowledge if it was not practically useful. They largely valued things based on whether or not it was good to eat. If it was, it quickly got their attention; if not, it was ignored. Lizardfolk could often become distracted at the appearance of food, even if they were in combat. They were easier to parley with after a meal, and a hungry lizardfolk was completely obstreperous.
 
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/2/2d/Lizardfolkkitchen.png/revision/latest?cb=20191103031257)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/2/2d/Lizardfolkkitchen.png)
 

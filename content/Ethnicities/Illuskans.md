@@ -5,6 +5,7 @@ Illuskans are tall, fair-skinned people. Most had blue or steel gray eyes. Those
 
 ## Culture
 Most Illuskan commoners were farmers, fishers, miners, or sailors. More adventurous types were known to become raiders, skalds, or runecasters.
+
 ## Politics
 Most Illuskans derived great pride from their resilience in the face of the harshness of their homelands. They saw folk from southern lands as weak and decadent.
 

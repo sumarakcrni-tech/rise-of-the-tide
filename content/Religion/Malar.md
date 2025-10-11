@@ -4,4 +4,4 @@ Malar is the lesser deity of hunting, stalking, bloodlust, and bestial savagery 
 
 In the past he was a member of the [[Gods]] of Fury led by [[Talos]], becoming an exarch of [[Silvanus]] after the [[Spellplague]].
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/f/fa/Malar_p44.jpg/revision/latest?cb=20200726230834)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/f/fa/Malar_p44.jpg)

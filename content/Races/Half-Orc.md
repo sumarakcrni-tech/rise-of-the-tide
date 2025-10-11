@@ -8,4 +8,4 @@ Half-orcs had shorter lifespans than humans, reaching maturity slightly earlier 
 
 Like other half-breeds, half-orcs combined the natures of both their lineages into a unique whole, a trait which extended into their mentality as well as their physical qualities. Like humans, half-orcs were quick to action, tenacious and bold, and possessed an adaptability that was unusual among most races. This was useful to the race given that they were considered outsiders just about everywhere; they had the ability to thrive in unwelcome or unusual locations, which was a necessity for a half-orc’s welfare.
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/8/86/Half-orc-5e.jpg/revision/latest?cb=20200903215008)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/8/86/Half-orc-5e.jpg)

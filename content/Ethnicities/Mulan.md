@@ -5,6 +5,7 @@ Mulan were typically tall and thin with a sallow skin tone and brown or hazel ey
 
 ## Culture
 Mulan were a generally arrogant, conservative group, resistant to change and convinced of their cultural superiority over all others. In Thay, many even believed they were above the [[gods]]. 
+
 ## Politics
 Mulan felt they were more civilized, inventive, and capable than other ethnic groups and believed strongly in the values of order and discipline. All upper- and middle-class Mulan received at least some education, and apprenticeship at a young age was common. Mulan followed the rigid class structures of their society, and the practice of slavery was commonplace.
 

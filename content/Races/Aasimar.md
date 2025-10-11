@@ -8,4 +8,4 @@ Most aasimar grew up cautious around others and, like [[Tiefling]], were sometim
 
 Aasimar preferred to keep a low profile in public, as not to draw the attentions of evil cultists, fiends, or other beings that wished to strike them down because the their celestial nature. An aasimar would abandon the low profile if it meant striking openly at evil, though never at the expense of endangering the innocent.
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/a/ad/5eR_Aasimar.png/revision/latest/scale-to-width-down/1000?cb=20250106164628)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/a/ad/5eR_Aasimar.png)

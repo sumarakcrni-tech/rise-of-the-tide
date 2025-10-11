@@ -8,4 +8,4 @@ Dwarves were a long-lived race, though not so much as elves, and reached physica
 
 Whether or not the dwarven claim that they'd been carved from the world's stone was true, dwarves shared many qualities considered similar to the stone they lived with. Strong, hardy, and dependable, dwarves were polite, particularly to elders, and possessed a wisdom beyond that of many other races. Dwarves valued their traditions, regardless of the subrace they came from, and looked for inspiration from ancestral heroes. Dwarves were also known for their stubborn nature and cynicism, traits widespread amongst the dwarves but which contributed to and were commonly offset by their bravery and tenacity.
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/c/c6/Dwarfcombat.png/revision/latest?cb=20200308114626)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/c/c6/Dwarfcombat.png)

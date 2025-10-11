@@ -10,4 +10,4 @@ Goliath skin was littered with bony growths called "lithoderms". These growths w
 
 Goliaths' most notable characteristic was their competitiveness. They kept track of their accomplishments and saw everything as a challenge. Those not familiar with goliath psychology would often get annoyed when goliaths constantly reminded them how many times a certain thing had happened, thinking them arrogant or self-centered. This was not the case however. To goliaths, score-keeping was a natural and integral part of life, not meant to belittle or demean anyone.
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/1/15/United_colors_of_goliaths_5point5e.jpg/revision/latest/scale-to-width-down/1000?cb=20241016184327)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/1/15/United_colors_of_goliaths_5point5e.jpg)

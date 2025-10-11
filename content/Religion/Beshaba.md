@@ -1,4 +1,5 @@
 >*Beshaba, like [[Tymora]], arose from the corrupted form of Tyche. Once [[Tymora]] came forth, all that was tainted by Moander coalesced and stepped out as the goddess of ill fortune, Beshaba. Beshaba was lovely to behold, but her heart was malicious and spiteful. Beshaba and [[Tymora]] hated one another instantly and tried to destroy each other. Fortunately other powerful [[gods]] were present at the time and helped separate the battling sisters. Beshaba fled to live on the dark planes, which were more suited to her spirit.*
 
 **Beshaba** is the chaotic evil intermediate deity of accidents, bad luck, misfortune, and random mischief, and a member of [[Tempus]]' pantheon during the [[Spellplague]]. Lady Doom was the equally acknowledged counterpart of [[Tymora]], Lady Luck, and demanded worship to keep her misfortunes at bay. Most feared her presence, but few would risk not invoking her name and inviting her to any event, lest she take offense and wreak havoc upon all involved.
+
 ![](https://static.wikia.nocookie.net/forgottenrealms/images/b/bd/Beshaba_p92-1-.jpg)

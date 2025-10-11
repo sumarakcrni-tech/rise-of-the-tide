@@ -8,4 +8,4 @@ They typically wore loose, dark garments with complex but subtle designs, and fa
 
 The transformation of [[human]] to shadar-kai gave cleverness and strange powers, but it exacted a harsh price: a dampening of sensation and emotion that could lead to great sadness and boredom; those who surrendered to this ennui lost their minds to oblivion as they became undead wraiths.
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/f/f4/Shadar-kai-4e.jpg/revision/latest?cb=20190325213059)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/f/f4/Shadar-kai-4e.jpg)

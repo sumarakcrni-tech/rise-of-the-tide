@@ -9,4 +9,4 @@ While halflings were commonly said to resemble short humans, gnomes were more co
 The skin of gnomes ran in hue from reddish tans to earthy browns or even shades of gray, with exact hue somewhat dependent upon the ethnic origin of a gnome. Similarly, gnomish hair varied wildly in color from blond and brown to more exotic colors like white, orange, or even green. Gnomish eyes were often—particularly in individuals who were native to the Feywild—glittering black or blue, although more natural eye colors were also known to the race.
 
 
-![](https://static.wikia.nocookie.net/forgottenrealms/images/c/cb/5eR_Gnomes.png/revision/latest?cb=20250529033658)
+![](https://static.wikia.nocookie.net/forgottenrealms/images/c/cb/5eR_Gnomes.png)

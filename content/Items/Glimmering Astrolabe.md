@@ -1,7 +1,7 @@
-![Exported image](Exported%20image%2020251008225159-0.jpeg)
+> *The sphere glimmers in the sunlight, prismatic reflections dancing on the surface.*
 
 The glimmering astrolabe is a rare item found in the [[Ruins of Gloom]].
  
-If returned to [Zaltran](Zaltran%20Mistheart), he will discover that it is a part of a bigger mechanism, but is unsure how it all fits together.
- 
-_T__he Astrolabe Glimmers at it's user, revealing patterns and figures._
+When returned to [Zaltran](Zaltran%20Mistheart), he discovered that it is a part of a bigger mechanism, but is unsure how it all fits together. The item is currently held by [[Werola Thynid]].
+
+![[Glimmering Astrolabe.jpeg]]
