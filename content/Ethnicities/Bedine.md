@@ -13,4 +13,5 @@ In 1485 DR, the Bedine rebelled against the [[Netherese]], after the [[Netheril'
 
 ## Religion
 The Bedine worshiped several variations of old [[Netherese]] [[gods]]: At'ar, Elah, Kozah, N'asr, and Shaundakul. Scholars, however, agreed that these deities were in fact [[Lathander]], [[Selûne]], [[Talos]], [[Cyric]] or [[Kelemvor]], and [[Beshaba]], respectively. In addition, they worshiped many other lesser deities and had a fear of the djinn, whom they considered evil desert spirits to be avoided at all costs.
+
 ![[Bedine.jpeg]]
