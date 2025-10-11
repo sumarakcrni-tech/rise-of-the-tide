@@ -55,7 +55,4 @@ Patent No. 00006
 Name: Monocle of  
 Range: 30 ft radius from you  
 Mats: **Glass Lens, Magical Bauble, Iron Ingot**
-    
-The grim story of Grom begins as most malformed Goliath children's story begins. Abandonment.  
-After being thrown out by his tribe and left to freeze in the icy mountains of Silver Marches, his feeble body failed him. But his mind was strong. Strong enough to endure the frozen wastes. One day, a roaming wanderer found him nestled in a bear's corpse. A white cloak over his head, wrinkly forehead with two silver, stern eyes and a mouthful of a fiery, braided beard. It was a mountain dwarf. But something was different about him. His right arm was not his own, but rather, a mechanical machine. The weary Goliath stared at the marvelous contraption with fascination. The dwarf, intrigued by the child's fascination, offered him a meal from his backpack. The child gladly accepted. The dwarf offered shelter to the child, but only if he would become his student. The child accepted. The dwarf introduced himself as **Kori**, but the child had no name, so he named him Grom, meaning thunder in an ancient language.  
-Grom grew under his tutelage in Citadel Adbar, becoming one of the finest smiths and artificers. As his skill grew, so did his knowledge. He forged himself an armor that would allow him to walk again. But, a terrible mishap happened. Citadel Adbar fell under attack by orc and drow raiders, slaying Bromm, one of the Twin Kings of Citadel Adbar. In the confusion, Grom magically cast himself within the armor, trapping his body inside it. He was finally able to walk again, but at what cost?
+
