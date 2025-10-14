@@ -30,7 +30,7 @@ Luxon, on the other hand, investigated the pig pen of the Hardcloak family when 
 
 The adventurers continued talking to the merchants, when a ring caught Talia's eye. Being the thief that she is, she pocketed it, creating a minor illusion in its place. The merchant never noticed the difference, and when he did, they were already long gone. Their decision was to proceed into the Eastern Road. After a couple of hours, the adventurers returned, battered and bruised and rested in the inn.
  
-1. **T****he Mystery Deepens**
+1. **The Mystery Deepens**
 
 Azlyn and Talia woke up at night. Something was dripping from one of the cupboards. Blood. They called for Grom and Luxon who investigated what was inside the cupboard. A head of a dead pig. The news was troubling. The head had been magically clotted to stop it from bleeding until a certain time.
  
@@ -83,6 +83,6 @@ Grom meets with Celorfin and Coins, explaining the situation and persuades them 
  
 Talia and Luxon investigate the Inn and scour it for food and resources. Before leaving, Talia remembers the strange ruby eye bracelet Grom had. She takes a closer look and starts hearing voices in her head, speaking in Infernal. Azlyn translates what the voices spoke, and Grom just grabs the bracelet and turns it into dust. The voice lets out a final message to Talia, reminding her that the Sands will reclaim all.
  
-1. **T****he Voyage**
+1. **The Voyage**
 
 Stocked and ready, the party, alongside Kharvem, Mesarth, Celorfin and Coins leave the village, traveling north to their campsite.

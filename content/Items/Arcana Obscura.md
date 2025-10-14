@@ -1,0 +1,3 @@
+>*Some knowledge is best left sealed.*
+
+Arcana Obscura is a book that was originally in possession by [[Werola Thynid]] in [[Hoghaven]]. The book was lost and recovered by the party. During the [[Fall of Hoghaven]] the book was safely kept by [[Werola Thynid]] until their rendezvous in [[Secomber]] where it currently resides. Alongside [[Olympia Skyriver]], [[Melbor Jahre]] and the party, little progress has been made in deciphering the contents of the book, but they made progress realizing it has a connection to the [[Glimmering Astrolabe]] and the machine present in the library of [[Secomber]]. The group has realized that the machine opens up something, but still unsure what.

@@ -1,5 +1,5 @@
 ### Description
-- Azlyn is a female [[human]] cleric, donning heavy armor and a greatsword
+- Azlyn Bennett is a female [[human]] cleric, donning heavy armor and a greatsword
 - She is interested in learning about [[dragonborn]]
 - She is interested in herbs and alchemy
 - She is sometimes clumsy
