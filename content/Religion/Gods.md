@@ -24,7 +24,7 @@ The gods of this world are far and many, with many gods giving power to their fo
 | [[Lliira]], goddess of joy                  | CG        | Life                | Triangle of three six-pointed stars                                                  |
 | [[Loviatar]], goddess of pain               | LE        | Death               | Nine-tailed barbed scourge                                                           |
 | [[Malar]], god of the hunt                  | CE        | Nature              | Clawed paw                                                                           |
-| [[Mask]], god of thieves                    | CN        | Trickery            | Black mask                                                                           |
+| [[Mask (God)]], god of thieves                    | CN        | Trickery            | Black mask                                                                           |
 | [[Mielikki]], goddess of forests            | NG        | Nature              | Unicorn's head                                                                       |
 | [[Milil]], god of poetry and song           | NG        | Light               | Five-stringed harp made of leaves                                                    |
 | [[Myrkul]], god of death                    | NE        | Death               | White human skull                                                                    |

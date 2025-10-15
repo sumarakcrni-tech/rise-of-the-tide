@@ -1,2 +1,3 @@
 >*Only ashes and dust will remain once we are finished with this place. By [[Mairgesh]]'s will, it shall be done.*
 
+The fall of [[Hoghaven]] was an event that was orchestrated by [[Mairgesh]], [[Rulf Redstream|Rulf]], and [[Henry Serpentwind|Henry]]. It brought [[White Pox]] to the small village and caused chaos among the population. The party was directly involved with [[Hoghaven]] when the incident occurred. The reasoning behind what happened is still unknown, but it caused removal of moisture from the surrounding area, effectively turning [[Hoghaven]] into a desert. When the party returned to [[Hoghaven]], they found a [[Shadovar]] lady there that aided them in fighting a [[Phaerimm]].

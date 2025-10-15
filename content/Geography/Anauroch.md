@@ -1,3 +1,5 @@
+>*This was once a magnificent site. Now, it is but ruins of a forgotten civilization.*
+
 **Anauroch** or **The Great Sand Sea**, is a magical desert in northern [[Faerûn]]. It holds the remnants of the once-powerful [[Netherese]] Empire, their flying enclaves having crashed to the ground when their greatest mage Karsus, in a desperate bid to end the war against the [[phaerimm]], challenged the goddess Mystryl for her divine mantle, causing the Weave to falter and all magic to fail. For generations since, Anauroch, the greatest desert in [[Faerûn]], encroached relentlessly on border nations, burying them beneath the sands.
  
 By 1479 DR, large parts of Anauroch had grown lush and verdant. However, by 1485 DR the Anauroch was once more a desert. During this year, [[Bedine]] rebels began a concentrated effort to overthrow their [[Netherese]] overlords following [[Netheril's war in Cormyr]].

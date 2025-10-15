@@ -1,5 +1,5 @@
 >*Ever since Savras's loss, sages have speculated that the All-Seeing One must have foreseen his own defeat. If this is true, perhaps Savras planned his own defeat as a feint in a long-term ploy for victory. Only he can say, and he refuses to speak on it.*
 
-**Savras** was the deity of wizards, divination, fate, and truth in the Faerûnian pantheon. The Lord of Divination lost his place as the god of spellcasters to [[Azuth]] and swore an oath of fealty to him, becoming the specific deity of his school of magic. While some believed He of the Third Eye guided the forces of destiny, others thought he knew all history but was unable to affect it, his emotionless demeanor a [[mask]] to hide his deep concern for Faerun's fate despite his relative inability to change it.
+**Savras** was the deity of wizards, divination, fate, and truth in the Faerûnian pantheon. The Lord of Divination lost his place as the god of spellcasters to [[Azuth]] and swore an oath of fealty to him, becoming the specific deity of his school of magic. While some believed He of the Third Eye guided the forces of destiny, others thought he knew all history but was unable to affect it, his emotionless demeanor a [[Mask (God)]] to hide his deep concern for Faerun's fate despite his relative inability to change it.
 
 ![](https://static.wikia.nocookie.net/forgottenrealms/images/4/46/Savras.jpg)

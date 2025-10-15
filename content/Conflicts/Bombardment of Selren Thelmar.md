@@ -1,0 +1,3 @@
+>*The bog hides ruins of an elven city.*
+
+The fall of Selren Thelmar was an event that [[Fenran Kurdar|Fenran]] and [[Liarel Kurdar|his sister]] described as their city being bombarded by a dragon, all orchestrated by [[Erethas]]. It was later revealed that they have no true recollections of how the city got destroyed, but they recalled going after [[Rise of the Tide/Villians/Erethas|Erethas]] and his hold, where they got captured and mind controlled with jaw implants.

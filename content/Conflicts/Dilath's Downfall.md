@@ -1,0 +1,3 @@
+>*A sad woman lived in that cave, betrayed by the ones closest to her.*
+
+[[Dilath Dawnstar|Dilath]] was an adversary that the group fought, and it was revealed that she is [[Mairgesh]]'s mother. She turned into a purple dragon inside the cave she was living, forcing the group to leave the cave, and lure her outside. The group then outsmarted her, using [[Duzkal the Vengeful|Duzkal]] as a portable cannon to shot her and completely obliterate her.

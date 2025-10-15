@@ -1,0 +1,3 @@
+>*The bell tolls on those who wronged them.*
+
+The bell incident refers to infiltration of [[Rulf Redstream|Rulf]] and [[Henry Serpentwind|Henry]] into [[Secomber]]. The party rushed to the Bell tower inside [[Secomber]] and found them there, but this time, both of them were infused with draconic powers. The incident ended with [[Grom]] pushing [[Henry Serpentwind|Henry]] out of the tower, causing him to fall and die. [[Rulf Redstream|Rulf]] was captured, but his sword was still left at the site of the fight, outside of the tower. [[Rulf Redstream|Rulf]] was later executed by [[Elizabeth Laughingsteel|Elizabeth]] in [[Secomber]].

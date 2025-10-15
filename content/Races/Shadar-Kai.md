@@ -1,6 +1,6 @@
 >*Shadar-kai are mournful and joyless. They were neither benevolent or malevolent, though they were not inclined to follow rules.*
 
-Shadar-kai are a race of shadowy humanoids that emerged when the [[Spellplague]] awakened the latent shadow energy inherent in the bodies of [[Netherese]] who had been born [[human]] in the Shadowfell.
+Shadar-kai are a race of shadowy humanoids that emerged when the [[Spellplague]] awakened the latent shadow energy inherent in the bodies of [[Netherese]] who had been born [[human]] in the [[Shadowfell]].
 
 Shadar-kai were similar to humans in appearance, but they had grey skin and eyes that were a solid, lustrous black with neither iris nor sclera visible. They almost always had complex patterns of tattoos and scars, as well as many piercings. They wore their hair long, either loose or shaved, styled, and/or braided in some manner.
 

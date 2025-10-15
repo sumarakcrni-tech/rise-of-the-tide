@@ -1,0 +1,3 @@
+> *The taste of the wine was great, but the consequences were not.*
+
+Milk Pox was found in [[Secomber]] inn, accidentally brought by [[Cedric Cleves|Cedric]] with Red Dawn Wine. The disease spread to [[Talia]], [[Zaltran Mistheart|Zaltran]], and other residents. Due to its high infection rate, several residents were quarantined and treated. [[Rayvero]], [[Azlyn]], and [[Luxon]] played a crucial role identifying the main compound called Rixain and identifying which herbs can neutralize the compound. The spread was neutralized through the course of two days.

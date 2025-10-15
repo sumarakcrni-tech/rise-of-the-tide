@@ -1,3 +1,5 @@
+>*A conglomerate of city states.*
+
 Sembia is a young country of considerable wealth and prosperity governed by its merchants. It was located on the north-western coast of the Sea of Fallen Stars in central [[Faerûn]], which put it in the path of many trade routes.
  
 It was located on the north-western coast of the Sea of Fallen Stars in central [[Faerûn]], which put it in the path of many trade routes.
