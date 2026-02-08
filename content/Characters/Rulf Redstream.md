@@ -12,7 +12,7 @@
 - He was captured in the Bell Tower and after he was deemed unnecessary, **[[Elizabeth Laughingsteel]]** shot him with her bow.
 
 ### Traits
-- Ruthless and obsessed with killing Luxon
+- Ruthless and obsessed with killing [[Luxon]]
 
 ### Relationships
 - Known to have worked with [[Henry Serpentwind]] and [[Rulf Redstream]].

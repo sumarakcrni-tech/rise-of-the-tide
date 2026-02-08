@@ -29,6 +29,8 @@
 
 - After a couple of hours, the adventurers returned, battered and bruised and rested in the inn.
 
+---
+
 ## Second of Mirtul, 1489 DR
 
 ### The Mystery Deepens
@@ -54,6 +56,8 @@
 - [[Luxon]] ejected himself from the window, running away from the Butcher [[Rulf Redstream]].
 
 - [[Azlyn]], [[Grom]] and [[Talia]] decided to leave the inn ASAP, jumping from the roof and going deep on the outskirts of the village. They evaded the butcher and met up with [[Luxon]]. They decided to go to the library to meet up with [[Werola Thynid]] and [[Cedric Cleves]] and get the hell out of [[Hoghaven]].
+
+---
 
 ## Third of Mirtul, 1489 DR
 
@@ -83,6 +87,8 @@
  
 - [[Talia]] and [[Luxon]] investigate the Inn and scour it for food and resources. Before leaving, [[Talia]] remembers the strange ruby eye bracelet [[Grom]] had. She takes a closer look and starts hearing voices in her head, speaking in Infernal. [[Azlyn]] translates what the voices spoke, and [[Grom]] just grabs the bracelet and turns it into dust. The voice lets out a final message to [[Talia]], reminding her that the Sands will reclaim all.
  
+---
+
 ## Fourth of Mirtul, 1489 DR
 
 ### The Campsite
@@ -105,6 +111,7 @@
 ### The Encounter
 - With the morning light, the group with survivors continued on the road south. On the road, they came across an abandoned outpost. [[Talia]] decided to investigate and spotted [[Laila Farlight|Laila]], [[Rulf Redstream|Rulf]] and an unknown [[dragonborn]] scouring through the outpost. Her keen eyes spotted and recognized the [[Arcana Obscura|missing book]] held by [[Laila Farlight|Laila]]. [[Talia]] sneaked towards them and swiped it off her belt without raising suspicion. But then, it happened. The [[dragonborn]] spotted the rest of the group and [[Talia]], which ended up in combat. [[Talia]] and [[Grom]] were able to best [[Laila Farlight|Laila]], while [[Luxon]] and [[Azlyn]] kept the others at bay. The [[dragonborn]] stepped in, raised his head, and let out a flame breath, knocking the group out. The last thing they heard before falling unconscious were the words uttered by the [[dragonborn]]: *Remember the name, [[Mairgesh]].*
 
+---
 ## Fifth of Mirtul, 1489 DR
 ### [[Secomber]]
 - Our adventurers were gravely wounded from their encounter with [[Mairgesh]], the residents of [[Hoghaven]] they rescued bring them into [[Secomber]]. Iron Eater Compound to be specific. 
@@ -119,4 +126,364 @@
 
 - [[Talia]] shows that she has the _[[Arcana Obscura]]_ book, and when she starts opening the pages, a strange machine behind [[Werola Thynid|Werola]] activates. Olympia explains that the device was a gift from Lord [[House Wyndall|Wyndall]] that he got from an expedition down South. She says that one can navigate using this machine, but she had no idea how to operate it. It seems that the _[[Arcana Obscura]]_ operates the machine. They start to leave the library, but not before [[Grom]] helps [[Olympia Skyriver|Olympia]] decipher a dwarven book containing blueprints for a cannon and a hand cannon. 
 
-- As they leave the library and head into the living quarters, our weary adventurers are finally feeling safe. [[Talia]] and [[Kharvem Shog|Kharvem]] come clean about Lord [[House Wyndall|Wyndall]] and how she is his daughter, [[Kharvem Shog|Kharvem]] recalls his childhood back when he was a young kid in Icewind Dale and how a group of guardians saved him from [The Cult](Cult%20of%20the%20Dragon.md), they speak of the [[Netherese]] and [[Mesarth]] mentions the[[The Flaming Rose Company|| Flaming Rose]], showing the slave mark he has on his back. They decide to rest here and take a break from everything that had been going on.
+- As they leave the library and head into the living quarters, our weary adventurers are finally feeling safe. [[Talia]] and [[Kharvem Shog|Kharvem]] come clean about Lord [[House Wyndall|Wyndall]] and how she is his daughter, 
+- [[Kharvem Shog|Kharvem]] recalls his childhood back when he was a young kid in Icewind Dale and how a group of guardians saved him from [The Cult](Cult%20of%20the%20Dragon.md), they speak of the [[Netherese]] and [[Mesarth]] mentions the[[The Flaming Rose Company|Flaming Rose]], showing the slave mark he has on his back. They decide to rest here and take a break from everything that had been going on.
+
+---
+
+
+## Sixth of Mirtul, 1489 DR
+### A New Beginning
+- A new day, a new beginning. The group continues to recuperate in [[Secomber]], licking their wounds and offering services to the residents of [[Secomber]]. [[Luxon]] helps around the library, while [[Grom]] helps [[Rhahmur Sorsk|Rhahmur]] around the blacksmith.
+
+- [[Talia]] and [[Azlyn]] peruse the Iron Eater Compound and find their way to [[Bronir Fusehorn|Bronir]]. He speaks about [[Zaltran Mistheart|Zaltran]] needing help with a task. He mentions that [[Zaltran Mistheart|Zaltran]] has all the information and can be found in his house in the city.
+
+- The group meet back together in the inn and discuss should they help [[Zaltran Mistheart|Zaltran]] or not. In the meantime, they overhear the waitress talking about something odd that showed up on her colleague. They approach [[Vadrey Freedew]] about what she said, and she points them to [[Denfer Teacloak]] with concern.
+
+- [[Denfer Teacloak|Denfer]] woke up with strange blue markings that [[Talia]] identifies as being magical in origin. [[Grom]] suggests a quarantine for the person just to stay safe. [[Denfer Teacloak|Denfer]] tries to resist [[Grom]] at first, but fails miserably. [[Luxon]] determines that the mark has to be some type of a spell. They scour the library for information, only for them to realize that it's a spell to remote control people. The party decides to help.
+
+- The party travels to The Green inside [[Secomber]] to find materials they need to remove the mark off of [[Denfer Teacloak|Denfer]]. [[Grom]] splits from the party and travels to [[Leo Drake|Leo]] to discuss smithing related materials. [[Talia]], [[Azlyn]] and [[Luxon]] travel to the jewelry store and meet [[Tharkar Barrelchin]].
+
+- [[Luxon]] realizes that her husband died recently, potentially murdered by someone, while [[Talia]] used the distraction to explore a way to steal the sapphires needed for the incantation to remove the mark. She is unable to find a way to pocket them, so [[Luxon]] proposes a radical idea. Ressurect [[Tharkar Barrelchin|Tharkar]]'s husband. [[Talia]] and [[Azlyn]] look at [[Luxon]], contemplate the idea and ultimately agree to do it.
+
+- They meet again with [[Grom]] who came back from [[Leo Cartwright|Leo]]. They relay his plan to him and he tells them to stop what they are doing, that it's against the natural order of things and is incorrect. They don't listen and leave him again, heading to the graveyard.
+
+- In the graveyard, [[Azlyn]] performs clerical rites over a grave that was incorrect, spurring confusion and disappointment from [[Talia]] and [[Luxon]]. They try to lift the burial lid open, but it is too heavy. They finally give up and regroup with [[Grom]].
+
+- A thick fog envelops the city, and the party is caught right in it. The bell tolls, signaling an enemy attack on [[Secomber]]. The party rushes towards commotion and spots hobgoblins attacking. They offer their help in defense. 
+
+- After the party successfully aids in the defense of [[Secomber]], they retreat back to Iron Eater Compound and confront [[Bronir Fusehorn|Bronir]] for being a useless leader who gets his men killed. He argues back and tells them to leave the premises and go help [[Zaltran Mistheart|Zaltran]]. Begrudgingly, the party accepts, but not before resting.
+
+
+---
+## Seventh of Mirtul, 1489 DR
+
+- The party meets **Zaltran** in **[[Secomber]]**, who initially mistakes them for cleaners. He explains that he requires an **astrolabe** believed to be located in the **swamp south of [[Secomber]]**. After negotiation, the party agrees to retrieve it for pay.
+
+- Investigating the source of the strange **fog affecting [[Secomber]]**, the party visits a nearby **cave**. Inside, they encounter a surprisingly friendly **otyugh**, whom they convince to accompany them into the swamp.
+
+- While traveling through the swamp, the party clashes with **Shad'rai elves** under magical domination.
+
+- By removing the **mind-controlling jaws**, the surviving elves regain their senses. They explain they were members of **Selren Themar**, tasked with scouting **Orogoth** and eliminating a **dracolich**.
+
+- The elves recount a **red shadow** destroying their settlement and describe **[[Erethas]]** attempting to resurrect the dracolich. Captured during the mission, they were tortured and mind-controlled.
+
+- Though another Selren Themar settlement may exist in the **Misty Forest**, the party instead proposes escorting the elves to **[[Secomber]]**, which they eventually accept.
+
+  
+
+---
+## Eight of  Mirtul, 1489 DR
+
+- The party escorts the elves to **[[Secomber]]**, heading directly to the **Iron Eater Compound**.
+
+- **[[Grom]]** and **[[Talia]]** arrange a meeting with **Bronir**, who agrees to shelter the elves under the same rules as other residents.
+
+- After a grueling journey, the party rests.
+
+- Early the next morning:
+
+  - **[[Grom]]** begins work on his patents, assisted by **Celorfin**.
+
+  - **[[Luxon]]** visits the library for paid work and translates an **Abyssal text**, uncovering references to the **Plane of Pleasure**.
+
+  - **[[Azlyn]]** visits the infirmary and meets **[[Mesarth]]**, who promises supplies.
+
+  - **[[Talia]]** visits the smithy and discusses designs with [[Grom]] and Celorfin.
+
+- The party meets **Bronir** and **Karvem**, learning that **[[Talia]]'s brother** will soon arrive in [[Secomber]] with the **Lord of [[Secomber]]**.
+
+- Bronir thanks the party for their deeds at **Shorty's Grove**, but informs them the **fog has returned**. He instructs them to report to the **library** first.
+
+- At the library, the party reunites with **Olympia** and **Werola**, delivering the **astrolabe**.
+
+- Werola installs the astrolabe into an ancient machine, activating it. The device displays visions:
+
+  - The **Wayspire** in **Arcadia**, a massive purple tree with a blue canopy.
+
+  - A towering **white spire** of unknown origin.
+
+- The party concludes the machine is a **planar transportation device**, noting missing components and a lightning-marked socket.
+
+- Suspicion grows regarding how **Zaltran** knew of the machine.
+
+  
+
+---
+## Ninth of Mirtul, 1489 DR
+
+- The party decides to investigate the fog at **Shorty's Grove**.
+
+- Inside the mine, they discover a strange mechanical device hidden in a coal cart. **[[Grom]]** activates it, halting the fog. Dwarven runes spell **“Kori.”**
+
+- Evidence suggests this was the murder site of **Noryver Barrelchin**. **[[Luxon]]** hears a voice mentioning **Harmand**.
+
+- Guards reveal **Harmand Barrelchin** fled [[Secomber]] after the incident and harbored jealousy toward his brother.
+
+- Bells toll **five times** - a fire erupts at the **Slush Docks**.
+
+- Using the fog machine, **[[Grom]]** suppresses the blaze, though two **Barrelchin ships** are destroyed.
+
+- The party encounters:
+
+  - An imp selling trinkets.
+
+  - **[[Marvus]]**, a [[tiefling]] offering contracts and information.
+
+- [[Marvus]] reveals a deal with **Tharkar**, magically compels **[[Talia]]**, and gifts gemstones containing trapped beings.
+
+- A requisitions officer reports a [[dwarf]] in a black coat fled the docks earlier on a rented fishing vessel.
+
+- Investigating cult graffiti in **The Slush**, the party meets **Zeirad**, a journalist employed by Zaltran.
+
+- Zeirad claims **[[Henry Serpentwind]]** is responsible and mentions an article hidden in *Article 5*.
+
+- [[Talia]] discovers the gemstones contain trapped creatures, including **[[Netherese]] humans** and an imp.
+
+- The party confronts **Zaltran**, delivering the astrolabe. He pays **800 gold** and shares concerns about **Severin Silrajin**, the **[[Cult of the Dragon]]**, and the **Wyrmskull Throne**.
+
+- The bells begin tolling endlessly. The party rushes to the **Iron Eater Compound**, but no attack occurs.
+
+- **Karvem** privately warns [[Talia]] that one brother is arriving soon - and another is missing.
+
+  
+
+---
+## Tenth of Mirtul, 1489 DR
+
+- The party investigates the **city ledger** at the library, uncovering missing caravan records for **Mirtul 3–4**.
+
+- With help from **[[Melbor Jahre]]**, the records are restored.
+
+- In private quarters, Zaltran identifies the gemstone magic as **Minimus Containment**.
+
+- **[[Marvus]]** appears again, returning a missing ruby and cryptically stating the prisoners are victims of their own greed.
+
+- Zaltran hires the party to investigate the **Bell Tower**, offering gold and the **Book of the Dragon**.
+
+- At the tower, guards admit the **Lord's Guard** is repairing the bells.
+
+- At the summit, combat erupts. The guards are revealed as:
+
+  - **[[Henry Serpentwind]]**
+
+  - **[[Rulf Redstream]]**, the butcher of [[Hoghaven]]
+
+- After a brutal fight:
+
+  - Henry is thrown from the tower to his death.
+
+  - Rulf is defeated and captured.
+
+- Henry's blade bears draconic runes spelling **“[[Mairgesh]].”**
+
+- Unable to claim the weapon, the party escorts their prisoner back to the **Iron Eater Compound**.
+
+---
+## Tenth of Mirtul, 1489 DR
+
+- The party interrogates **[[Rulf Redstream]]** for information regarding **[[Mairgesh]]**, but he refuses to cooperate.
+
+- **[[Elizabeth Laughingsteel]]** returns from her scouting mission and assists with the interrogation. She abruptly kills Rulf, claiming he was never going to talk.
+
+- Her unclear motives anger the party. Though they accept her explanation, **[[Grom]]** and **[[Talia]]** grow increasingly suspicious of her.
+
+- The party returns to the **Inn**, where **Cedric** tells them about a shipment he stole from [[Hoghaven]] - **Red Dawn wine**.
+
+- The party disperses around the **Iron Eater Compound**, each assisting in their respective areas.
+
+- Elizabeth briefs the party on her scouting mission, warning of a **massive creature** roaming between [[Secomber]] and the Outpost.
+
+- She proposes a joint expedition to **[[Secomber]] Outpost**, believing information about [[Mairgesh]] may be found there.
+
+- The party agrees, but decides to rest first.
+
+  
+
+---
+## Eleventh of Mirtul, 1489 DR
+
+- The party travels with Elizabeth and encounters the massive boar **Duz'kal the Vengeful**.
+
+- Through negotiation, the party redirects Duz'kal's vengeance toward those who wronged him.
+
+- They arrive at **[[Secomber]] Outpost**, now a ruin where the party was previously defeated by [[Mairgesh]].
+
+- **[[Luxon]]** suffers a strange headache and begins instinctively guiding the group, leading them to a broken hatch.
+
+- Beneath the outpost, they discover a cave filled with **purple crystals**. **[[Grom]]** chips off a fragment for later study.
+
+- **[[Talia]]** hears a voice deeper within the cave. The party presses forward and finds a disturbed child named **Karstan**.
+
+- Strange sounds echo from above ground. Karstan panics, warning them that *“they're here.”*
+
+- The party plants explosives to destroy the cave and its materials, then evades **draconic beings** on the surface.
+
+- Karstan explains that **Mother Dilath** abducted children and transformed them into those creatures - he alone escaped.
+
+---
+## Twelfth of Mirtul, 1489 DR
+
+  
+
+- The scouting party returns to the **Iron Eater Compound**.
+
+- **[[Talia]]** escorts Karstan to **Werola** in the library, while **[[Grom]], [[Azlyn]], [[Luxon]]**, and **Elizabeth** rest.
+
+- [[Talia]] debriefs Werola and promises Karstan he is safe.
+
+- The party meets with the **Council** near the sleeping quarters.
+
+- Plans to assault **Mordath Hold**, where [[Mairgesh]] resides, are put on hold.
+
+- After reviewing the scouting report, the Council agrees the party should confront **Dilath** first.
+
+- **[[Luxon]]** goes to sleep while **[[Talia]]** and **[[Azlyn]]** give a detailed account of the creatures encountered.
+
+- **Zaltran** recalls a family of dragons obsessed with science, growing fearful at the mention of **Dilath** and **Daleth**.
+
+- **[[Grom]]** is visited by **Xoyas**, who discusses **Bindstone** and its properties with him.
+
+- **[[Talia]]** brings Karstan to examine a plaque with **draconic inscriptions**, intriguing the child.
+
+- The Council adjourns. **[[Azlyn]]** and **[[Talia]]** retire to their quarters; [[Azlyn]] suffers a nightmare about her past.
+
+
+---
+## Thirteenth of  Mirtul, 1489 DR
+
+- **[[Luxon]]** visits the infirmary to collect **bone dust**, then explores the Compound.
+
+- **[[Talia]]** visits the Smithy, finding **[[Grom]]** and **Xoyas** discussing experimental **cannons**.
+
+- [[Grom]] outlines a plan requiring rope and specialized gear.
+
+- [[Talia]] receives:
+
+  - A **blunderbuss**
+
+  - Rope from Xoyas
+
+  - A personal gift from [[Grom]] - a **talon climber**
+
+- [[Talia]] tests the climber successfully outside the Compound.
+
+- The party regroups and finalizes their next move.
+
+- [[Grom]] convinces **Bronir** to provide soldiers to assist with operating the cannons.
+
+- [[Talia]] visits the Inn, finding **Karvem** and **Fenran** drunk.
+
+- **Elizabeth** gathers resources for the expedition.
+
+- The party departs with **Elizabeth** and **Liarel**, heading north of the Outpost.
+
+- [[Grom]] straps cannons onto **Duz'kal** as part of his plan.
+
+- A curious **[[Harengon]]** named **[[Rayvero]]** observes and joins the group.
+
+- Following the river upstream, [[Talia]] discovers a strange **rock formation**.
+
+- Nearby, a child is found speaking **Draconic** and seemingly transforming.
+
+- Acting quickly, [[Talia]] kills the child while [[Azlyn]] reassures [[Rayvero]].
+
+- The party later realizes the child suffered from a **skin condition**, not transformation, and give them a proper rest - shaken by their mistake.
+
+- A stone falls away from the formation, revealing a hidden passage.
+
+---
+
+## Fourteenth of Mirtul, 1489 DR
+
+
+- Inside the cave, the party finds **Dilath's chambers** and learns of the **Dawnstar family**.
+
+- [[Talia]] discovers a **statuette with a spiral base**.
+
+- The party learns **[[Mairgesh]] is Dilath's son**.
+
+- Deeper within, they find a **laboratory** filled with body parts and purple vats.
+
+- The laboratory is destroyed, and the party retreats.
+
+- [[Talia]] places the statuette into a spiral dent, causing water to recede.
+
+- In a vast chamber of purple crystals, they confront **Dilath**, who suffers a mental breakdown.
+
+- Dilath warns them to flee as she begins transforming.
+
+- The party escapes the cave as **Dilath reveals her true form - a purple dragon**.
+
+- **[[Grom]]**, using cannons mounted on **Duz'kal**, annihilates Dilath.
+
+- Investigating the remains, **[[Luxon]]** suffers another seizure.
+
+- Wings are heard in the distance. [[Talia]] scouts using her familiar, spotting draconic beasts from the Outpost.
+
+- The party moves silently through the forest, heading south, then detours northeast toward **[[Hoghaven]]**.
+
+- [[Hoghaven]] is found buried in sand, with a massive **sand whirlpool** at its center.
+
+- The party retreats east and rests at a previously discovered cave.
+
+---
+## Fifteenth of Mirtul, 1489 DR
+
+- During the night, strange sounds disturb the party.
+
+  - [[Rayvero]] recalls legends of an ancient **Fae**.
+
+  - [[Azlyn]] sleeps curled in a cave.
+
+  - [[Grom]] asks Duz'kal to keep watch.
+
+  - [[Talia]] scouts with her owl amid heavy rain.
+
+  - [[Luxon]] speaks with Duz'kal about his origins.
+
+- A tall figure appears in the rain - **Avri**, the Gray Lady.
+
+- She taunts **[[Talia]]**, teleporting beside her, and warns her to go to **Orlbar** if she wants her brother to live.
+
+- Avri vanishes, leaving twisted laughter behind.
+
+- Corrupted nature creatures attack. **Duz'kal** destroys them with cannon fire.
+
+- At dawn, the party travels back toward **[[Secomber]]**.
+
+- Duz'kal demands vengeance upon **[[Hoghaven]]**. Unable to dissuade him, the party agrees to help.
+
+- Strange sounds emanate from the storm at [[Hoghaven]].
+
+- [[Talia]] sneaks into the library while Duz'kal destroys the **constabulary**.
+
+- A massive construct is identified as a **Tomb Tapper**.
+
+- Four spirits emerge from Duz'kal, revealing his past as an **orc druid** who desired peace.
+
+- He agrees to aid the party only to protect innocents.
+
+- The party meets **Vimidra**, who bonds with [[Grom]] over artifice and explains her mission to destroy **[[Phaerimm]]**.
+
+- Cannons are fired into the storm, revealing a **[[Phaerimm]] creature**.
+
+- After a fierce battle, the creature is slain and the storm dissipates.
+
+- The party socializes briefly with Vimidra.
+
+- Returning to [[Secomber]], the party rests.
+
+- Night brings chanting and blood in **[[Azlyn]]'s room**, though she survives.
+
+- [[Luxon]] creates a cure for a disease afflicting the party.
+
+- **[[Talia]] reconciles with her father, Lord Wyndall**, who asks her help rescuing her kidnapped son.
+
+- Later, [[Talia]] discovers **Ren Wyndall** dead beside a mundane staff once used by Vimidra.
+
+- The party resolves that **The Wheel must pay**.
+
+- A detective named **Rowan** arrives.
+
+- The party tracks **The Council**, observes them meeting goblins, and eliminates the goblins once the Council departs.
